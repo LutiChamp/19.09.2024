@@ -1,3 +1,3 @@
 ### Invoker
 **ggdfsgsd**
-![alt text](https://yandex.ru/images/search?family=yes&img_url=https%3A%2F%2Fwallpapercg.com%2Fdownload%2Fdota-2-logo-6400x3864-13036.png&lr=213&pos=0&rpt=simage&source=serp&text=%D0%B4%D0%BE%D1%82%D0%B0%202%20%D0%B8%D0%BA%D0%BE%D0%BD%D0%BA%D0%B0)
+![alt text](https://steamuserimages-a.akamaihd.net/ugc/595911581544498947/4308E3D77B1819D675934FDB7A82E903BCFF5627/?imw=512&amp;imh=288&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=true)
